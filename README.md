@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Adriano neres 😁
+## Bem-vindo(a) ao perfil do Adriano Neres 😁
 
  <div>
    <a href="https://github.com/Adrianoineres">
